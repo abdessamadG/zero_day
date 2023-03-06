@@ -1,1 +1,1 @@
-DO HARD THINGS
+Do Hard Things
